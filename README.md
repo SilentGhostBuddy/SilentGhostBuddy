@@ -5,6 +5,7 @@
 - *ʜᴀɪɪɪ ɪ ᴀᴍ ɢʜᴏsᴛ / ʙᴜᴅᴅʏ!*
 - ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆ ✈︎ II ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆
 - *ʀᴇᴀᴅ ᴍʏ sᴛʀᴀᴡᴘᴀɢᴇ ғᴏʀ ᴍᴏʀᴇ ɪɴᴘᴏʀᴛᴀɴᴛ ɪɴғᴏ!!*
+- *Please interact carefully. Do not copy my style or other! I wish you amazing day and don't let people pull you down! <3*
 - ![hohfGGW](https://github.com/user-attachments/assets/0cd5b214-305b-469c-b33b-f0d548c1d9fa)
 - ▶︎ •၊၊||၊|။||||။‌‌‌‌၊|• 0:10 ════════════════════════════
 - ─── ⋆⋅☆⋅⋆ ──
