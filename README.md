@@ -6,7 +6,7 @@
 - ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆ ✈︎ II ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆
 - *ʀᴇᴀᴅ ᴍʏ sᴛʀᴀᴡᴘᴀɢᴇ ғᴏʀ ᴍᴏʀᴇ ɪɴᴘᴏʀᴛᴀɴᴛ ɪɴғᴏ!!*
 - *Please interact carefully. Do not copy my style or other! I wish you amazing day and don't let people pull you down! <3*
-- <img width="498" height="269" alt="resident-evil-resident-evil4" src="https://github.com/user-attachments/assets/babedee5-e191-438a-bd61-9961039e0132" />
+- <img width="1199" height="755" alt="image" src="https://github.com/user-attachments/assets/3ce2176e-5e8c-494d-9bd7-5310ded9f7a6" />
 - ▶︎ •၊၊||၊|။||||။‌‌‌‌၊|• 0:10 ════════════════════════════ ᡕᠵデᡁ᠊╾━
 - ˚˖𓍢ִ໋❀ ─── ⋆⋅☆⋅⋆ ─── ˚˖𓍢ִ໋❀
 
